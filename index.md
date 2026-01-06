@@ -56,7 +56,7 @@ We may update this Privacy Policy from time to time. Changes will be posted on t
 
 ## Contact
 
-For privacy-related questions, contact: [YOUR_EMAIL]
+For privacy-related questions, contact: kitunovdavid57@gmail.com
 
 ## Compliance
 
